@@ -1,6 +1,6 @@
 👋 Hi I'm Justin!
 
-I play here 
+I play here. If it ain't fun, ain't having it.
 
 # Did you know…?
 - 🎮 Video games are art; I like playing and [creating](https://en.wikipedia.org/wiki/FIFA_08) them.
