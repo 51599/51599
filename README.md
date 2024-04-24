@@ -9,3 +9,4 @@ I'm a recovering perfectionist; my inner child is scared of me.
 - 📖 Reading makes me think while keeping me curious. 
 - 💻 I like making computers work hard to help us all move forward.
 - 🎉 The right picture can be worth all the words.
+- 👷 I dont have a job, i have a purpose...to serve others for the betterment of mankind.
