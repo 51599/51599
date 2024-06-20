@@ -1,6 +1,7 @@
 👋 Hello from Justin!
 
 I'm a recovering perfectionist; my inner child is scared of me.
+I'm an unregistered nurse and part-time dog mechanic.
 
 # Did you know…?
 
